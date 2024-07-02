@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pratik
 - 👀 I’m interested in web and app development
-- 🌱 I’m currently in 3rd year Electronics And Computer dept.
+- 🌱 I’m currently in 4TH year Electronics And Computer dept.
 - 💞️ I’m looking to collaborate on any project related to my interset.
 - 📫 U can reach me through my email----------pratik2002pal@gmail.com
 
